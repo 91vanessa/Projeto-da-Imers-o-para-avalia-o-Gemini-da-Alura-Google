@@ -1,1 +1,0 @@
-# Projeto-da-Imers-o-para-avalia-o-Gemini-da-Alura-Google
